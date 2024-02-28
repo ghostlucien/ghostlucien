@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1163337681560944672/1201797969637285949/127467c7-eeb4-41c5-87f3-474a0996e777.jpg?ex=65cb2094&is=65b8ab94&hm=c832848eee9588f3908381ef0113854390cbd9ee7dbd868ec1c673c3a299df24&=&format=webp&width=541&height=473)
+![](https://media.discordapp.net/attachments/953017747200147487/1212477836838043688/973edaf63737015646f67f229de01f10.png?ex=65f1fafb&is=65df85fb&hm=fa0a9aa43c0bbcd17583714ac94493241627feccd5ff6b90c107185a148079ec&=&format=webp&quality=lossless&width=520&height=473)
