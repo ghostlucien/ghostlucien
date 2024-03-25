@@ -1,3 +1,5 @@
+ok buddy dirk.. BOARD OF SHAME.
+![](https://media.discordapp.net/attachments/953017747200147487/1221953823241801728/IMG_0442.png?ex=6614742e&is=6601ff2e&hm=2d02057f47ec951f7cc2c7954dcc3005118a9836ad5bd75e10173ff1ba741534&)
 leave me alone github user bathroombreak ur literlly twenty five 
 ![](https://media.discordapp.net/attachments/1163337681560944672/1221923721141293106/IMG_0435.png?ex=66145825&is=6601e325&hm=a0d387dd4357b941c6028cbdddfd8cf4a52f38fca9872095736dd1a813dce662&)
 LEAVE. a very nice comment on it pls (dont be like them)
