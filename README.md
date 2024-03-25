@@ -1,3 +1,5 @@
+board of stupidness. cmon nick u know better than this shit
+![](https://media.discordapp.net/attachments/953017747200147487/1221971266408546384/IMG_0448.png?ex=6614846d&is=66020f6d&hm=b50188255f06ebcbb8ebd1c01503e17ec2e1e213effb2c833c69d798e96596f9&)
 DIRK IS FUCKING AT IT AGAIN GRANDPA GET THE GUN!!!!!!
 ![](https://media.discordapp.net/attachments/953017747200147487/1221961007488831539/IMG_0445.png?ex=66147adf&is=660205df&hm=039f12f7a635e74b13d9480ec58627a62ce9ed2a85cce2c4b9dbc37e7e7a2104&)
 ok buddy dirk.. BOARD OF SHAME.
