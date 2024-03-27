@@ -1,3 +1,5 @@
+board of shame and stupdidness🤫
+![](https://media.discordapp.net/attachments/953017747200147487/1222369256465891378/IMG_0465.png?ex=6615f715&is=66038215&hm=8579ec38ff54235451c16d7be15f7d93f1c48e0b8f8c650e0dd7210e1e46406a&)
 they never learn do they tch. (if ur wondering what is the image) (its the one below...😁)
 ![](https://media.discordapp.net/attachments/1198749676413927556/1222366279860748378/IMG_0464.png?ex=6615f44f&is=66037f4f&hm=7aebfc78180ef152d384a2092048ea7a31af06ef62b342b7bcf11fdc55697109&)
 ![](https://media.discordapp.net/attachments/953017747200147487/1222251571589681182/IMG_0458.png?ex=6615897b&is=6603147b&hm=2d3aa1a2d285e8bd357d828e531c76bb915afac76e593058e789bb1c4bcfb669&)
