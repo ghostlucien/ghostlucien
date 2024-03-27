@@ -1,4 +1,4 @@
-they never learn do they tch.
+they never learn do they tch. (if ur wondering what is the image) (its the one below...😁)
 ![](https://media.discordapp.net/attachments/1198749676413927556/1222366279860748378/IMG_0464.png?ex=6615f44f&is=66037f4f&hm=7aebfc78180ef152d384a2092048ea7a31af06ef62b342b7bcf11fdc55697109&)
 ![](https://media.discordapp.net/attachments/953017747200147487/1222251571589681182/IMG_0458.png?ex=6615897b&is=6603147b&hm=2d3aa1a2d285e8bd357d828e531c76bb915afac76e593058e789bb1c4bcfb669&)
 youre my sunshine my only sunshine..
